@@ -6,4 +6,4 @@ Some more info about the workshop.
 
 More information.
 
-The cat is under the sink.
+The black cat is under the sink eating your ham.
